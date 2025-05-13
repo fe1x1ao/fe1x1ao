@@ -31,8 +31,14 @@ MY FANDOMS:
 #
 
 МЕЙНЕРЫ САПФИРА ЖЕНИТЕСЬ НА МНЕ ПЖ Я ВАМ НОГИ РАСЦЕЛУЮ!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!
-![tumblr_ababd2455ac013aed9804e03ea4608bf_8d2f4a7e_400](https://github.com/user-attachments/assets/491b9f8e-113e-4da5-b66e-e5f72d76266e)
+![tumblr_ababd2455ac013aed9804e03ea4608bf_8d2f4a7e_400](https://github.com/user-attachments/assets/491b9f8e-113e-4da5-b66e-e5f72d76266e) ![tumblr_c43589d4c2400d8ffb928e1e9aee77e5_768651b0_250](https://github.com/user-attachments/assets/2c606035-786e-4cd0-bbee-cdddb7fef6a3)
 
+#
+𝑭𝒂𝒗 𝒑𝒂𝒊𝒓𝒊𝒏𝒈𝒔!!
+𝒉𝒔𝒓: 𝒂𝒄𝒉𝒆𝒓𝒐𝒏/𝒃𝒍𝒂𝒄𝒌 𝒔𝒘𝒂𝒏, 𝒃𝒐𝒐𝒕𝒉𝒊𝒍/𝒂𝒓𝒈𝒆𝒏𝒕𝒊, 𝒋𝒊𝒏𝒈𝒍𝒊𝒖/𝒃𝒂𝒊𝒉𝒆𝒏𝒈, 𝒌𝒂𝒇𝒌𝒂/𝒉𝒊𝒎𝒆𝒌𝒐, 𝒅𝒐𝒄𝒕𝒐𝒓 𝒓𝒂𝒕𝒊𝒐/𝒂𝒗𝒆𝒏𝒕𝒖𝒓𝒊𝒏𝒆, 𝒄𝒂𝒆𝒍𝒖𝒔/𝒅𝒂𝒏 𝒉𝒆𝒏𝒈, 𝒔𝒕𝒆𝒍𝒍𝒆/𝒎𝒂𝒓𝒄𝒉 𝟕, 𝒔𝒑𝒂𝒓𝒌𝒍𝒆/𝒓𝒐𝒃𝒊𝒏, 𝒕𝒉𝒆 𝒈𝒆𝒓𝒕𝒂/𝒓𝒖𝒂𝒏 𝒎𝒆𝒊, 𝒎𝒊𝒅𝒆𝒊/𝒇𝒂𝒆𝒏𝒐𝒏, 𝒔𝒂𝒎𝒑𝒐/𝒈𝒆𝒑𝒂𝒓𝒅, 𝒃𝒓𝒐𝒏𝒚𝒂/𝒔𝒆𝒆𝒍𝒆, 𝒋𝒊𝒏𝒈 𝒚𝒖𝒂𝒏/𝒃𝒍𝒂𝒅𝒆, ++
+𝒈𝒆𝒏𝒔𝒉𝒊𝒏: 𝒚𝒂𝒆 𝒎𝒊𝒌𝒐/𝒓𝒂𝒊𝒅𝒆𝒏, 𝒏𝒆𝒖𝒗𝒊𝒍𝒆𝒕𝒕𝒆/𝒘𝒉𝒊𝒐𝒕𝒉𝒆𝒔𝒍𝒆𝒚, 𝒂𝒍𝒉𝒂𝒊𝒕𝒂𝒎/𝒌𝒂𝒗𝒆𝒉, 𝒄𝒚𝒏𝒐/𝒕𝒊𝒈𝒉𝒕𝒏𝒂𝒓𝒊, 𝒏𝒂𝒗𝒊𝒂/𝒄𝒍𝒐𝒓𝒊𝒏𝒅𝒆, !!𝑨𝒀𝑨𝑻𝑶/𝑴𝑼𝑻𝑰𝑳𝑨 𝑳𝑶𝑽𝑬 𝑭𝑶𝑹𝑬𝑽𝑬𝑹!!, ++
+𝒄𝒐𝒐𝒌𝒊𝒆 𝒓𝒖𝒏: 𝒔𝒉𝒂𝒅𝒐𝒘 𝒎𝒊𝒍𝒌 𝒄𝒐𝒐𝒌𝒊𝒆/𝒑𝒖𝒓𝒆 𝒗𝒂𝒏𝒊𝒍𝒍𝒂 𝒄𝒐𝒐𝒌𝒊𝒆, 𝒔𝒉𝒂𝒅𝒐𝒘 𝒎𝒊𝒍𝒌 𝒄𝒐𝒐𝒌𝒊𝒆/𝒃𝒍𝒂𝒄𝒌 𝒔𝒂𝒑𝒑𝒉𝒊𝒓𝒆 𝒄𝒐𝒐𝒌𝒊𝒆, 𝒃𝒍𝒂𝒄𝒌 𝒔𝒂𝒑𝒑𝒉𝒊𝒓𝒆 𝒄𝒐𝒐𝒌𝒊𝒆/𝒔𝒊𝒍𝒗𝒆𝒓𝒃𝒆𝒍𝒍 𝒄𝒐𝒐𝒌𝒊𝒆, 𝒃𝒍𝒂𝒄𝒌 𝒇𝒐𝒓𝒆𝒔𝒕 𝒄𝒐𝒐𝒌𝒊𝒆/𝒘𝒆𝒅𝒅𝒊𝒏𝒈 𝒄𝒂𝒌𝒆 𝒄𝒐𝒐𝒌𝒊𝒆,  ++
+𝒎𝒚 𝒉𝒆𝒓𝒐 𝒂𝒄𝒂𝒅𝒆𝒎𝒊𝒂: 𝒊𝒛𝒖𝒌𝒖/𝒌𝒂𝒕𝒔𝒖𝒌𝒊, 𝒕𝒐𝒈𝒂/𝒐𝒄𝒉𝒂𝒌𝒐, 𝒉𝒂𝒘𝒌𝒔/𝒅𝒂𝒃𝒊
 
 
 
