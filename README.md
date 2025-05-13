@@ -49,7 +49,7 @@ MY FANDOMS:
 #
 ![tumblr_21e015a5e6839e2c01ceb225808fb9a4_c54bff5f_540](https://github.com/user-attachments/assets/8c349536-c946-4f83-be86-0da71251cf31)
 #
--МОИ КИННЫ 
+МОИ КИННЫ 
 
 
 
