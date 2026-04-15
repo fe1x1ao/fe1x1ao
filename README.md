@@ -4,7 +4,7 @@
 
 <div align="center"> 
 
-# HI THERE ✦ ꉂ(˵˃ ᗜ ˂˵)
+# HI CUTIES (˶˃ ᵕ ˂˶)
 -
 - <img width="540" height="304" alt="tumblr_aef738ac5434d9c85398dd7ea7ac887c_e1f6e641_540" src="https://github.com/user-attachments/assets/b76f44c9-607f-4283-9014-d98fcf496f09" />
 # <img width="540" height="57" alt="tumblr_81ef4ef6cb01ef7b21cd52baf25f43d1_8dd52fa9_540" src="https://github.com/user-attachments/assets/4ca1227a-1210-440b-8795-bbe28747cd1b" />
@@ -60,3 +60,4 @@
 - https://t.me/A4SHh0lee
 - https://t.me/numericcodes421
 - <img width="400" height="400" alt="tumblr_83665c0caf4f1cb65d882c506888fd0a_86c55d63_400" src="https://github.com/user-attachments/assets/d94100e4-b561-4554-a750-dcb628760c11" />
+- - <img width="1160" height="807" alt="photo_2026-01-06_22-10-37" src="https://github.com/user-attachments/assets/63d9297f-3e1f-4fd1-89c6-7e8cba924d29" />
