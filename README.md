@@ -53,7 +53,7 @@
 - https://t.me/Adno_ok0
 - https://t.me/ArtsMattInk
 - https://t.me/vioriiii
-- https://t.me/susadusa
+- https://t.me/susadusa (кр авы)
 - https://t.me/khdwqi
 - https://t.me/dyzmoral_corporation
 - https://t.me/moccchiiiu
