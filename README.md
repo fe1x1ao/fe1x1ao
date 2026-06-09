@@ -53,7 +53,6 @@
 - https://t.me/vioriiii
 - https://t.me/susadusa (кр авы)
 - https://t.me/khdwqi
-- https://t.me/dyzmoral_corporation
 - https://t.me/moccchiiiu
 - https://t.me/A4SHh0lee
 - <img width="400" height="400" alt="tumblr_83665c0caf4f1cb65d882c506888fd0a_86c55d63_400" src="https://github.com/user-attachments/assets/d94100e4-b561-4554-a750-dcb628760c11" />
